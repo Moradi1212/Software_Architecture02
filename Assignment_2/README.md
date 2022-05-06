@@ -1,0 +1,1 @@
+https://github.com/bobur554396/SA2022/blob/master/assignment2/beginner/readme.md
